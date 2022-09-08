@@ -3,6 +3,6 @@
 - 🌱 I’m currently learning cloud computing
 - 💬 Ask me about ?
 - 📫 Mail: 1183235566@qq.com
-- 😄 Pronouns: linlink
+- 😄 Pronouns: cv engineer
 - ⚡ blog: https://000linlin.link
 
