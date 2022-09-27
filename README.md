@@ -4,5 +4,5 @@
 - 💬 Ask me about ?
 - 📫 Mail: 1183235566@qq.com
 - 😄 Pronouns: C V engineer
-- ⚡ blog: https://000linlin.link
+- ⚡ blog: https://linlink.xyz
 
